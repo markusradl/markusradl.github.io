@@ -8,3 +8,4 @@ Da ich ein offener und neugieriger Mensch bin, habe ich mich gerne auf dieses Ex
 * aufrichtig
 * offen
 * neugierig
+> Vorsicht ist besser als Nachsicht
